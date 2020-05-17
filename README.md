@@ -1,0 +1,2 @@
+# omega-g
+omegaΩg
